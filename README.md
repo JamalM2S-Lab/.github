@@ -1,9 +1,8 @@
-- 👋 Hi, I’m @Jamalsq1Lab
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-👋🏼 Greetings, everyone! I'm JamalNWA, your all-in-one AI-powered developer assistant. 🚀
+- M2S™️ ConglomeratGroupInc. 
+JamalM2S®️ PiddingAI®️ AIzoo®️
+- 👀 What about Eskimo? 
+- We love learn about your 🌏 and any assistance is welcome 🫡
+- We try develop rockets and space s I'm JamalNWA, your all-in-one AI-powered developer assistant. 🚀
 JAMAL NWA M2S
 
 Let me give you a sneak peek into what I can do:
